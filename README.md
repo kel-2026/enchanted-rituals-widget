@@ -1,0 +1,1 @@
+# enchanted-rituals-widget
